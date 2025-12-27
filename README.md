@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jeanpaulzedy
 - 👀 I’m interested in learning ict and technology
-- 🌱 I’m currently learning Education in University of Rwanda
+- 🌱 I’m hold a bachelor's degree in kinyarwanda and English with education from University of Rwanda and I am currently working as language teacher at ESP RULI where I teach learners from S4-s6 across various combinations.
 - 💞️ I’m looking to collaborate on developing my skills 
 - 📫 How to reach me ... By email: jeanpaulnsengimana18@gmail.com 
 
